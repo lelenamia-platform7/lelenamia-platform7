@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lelenamia-platform7
-- 👀 I’m interested in People and Culture and Diversity
+- 👀 I’m interested in Tech Recruiting and Diversity
 - 🌱 I’m currently learning to better know software engineers
 - 💞️ I’m looking to collaborate on --- any suggestions? 
 - 📫 How to reach me ... impossible!
